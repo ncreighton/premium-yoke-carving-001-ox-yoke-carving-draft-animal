@@ -1,0 +1,2 @@
+# premium-yoke-carving-001-ox-yoke-carving-draft-animal
+Stop juggling scraps of paper, forgotten measurements, and half-finished yoke orders—your wood craft studio deserves a single source of truth that keeps every carving project, draft animal client, and chunk of raw wood in perfect alignment.  This Notion template transforms chaos into clarity for yoke carvers. It centralizes project timelines, mater
